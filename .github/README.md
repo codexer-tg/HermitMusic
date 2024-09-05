@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 H3rm!7 Mu5!( 」──
+    ─「 H3rm!7 Mu5!( 」─
 </h2>
 
 <p align="center">
